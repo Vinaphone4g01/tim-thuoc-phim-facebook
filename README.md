@@ -1,2 +1,4 @@
 # tim-thuoc-phim-facebook
 Hướng dẫn tìm thước phim HOT trend Facebook
+<p style="text-align: justify;"><a href="https://blogvn.org/huong-dan-tim-thuoc-phim-facebook.html"><strong>Tìm thước phim trên Facebook</strong></a> là một trong những thao tác mà người dùng muốn biết hiện nay. Từ khi ra đời, Reels trên ứng dụng Facebook trở nên nóng như cồn bởi tính năng hiện đại, dễ dàng tạo video ngắn mà không cần qua ứng dụng thứ 3 nào cả. Bạn có thể tìm thước phim hay của bạn bè, thần tượng để có thể lưu lại hoặc ra một clip tương tự.</p>
+<p style="text-align: justify;">Nhiều người dùng đến bây giờ vẫn chưa thể nào thực hiện được. Do đó ngay trong nội dung bài viết sau đây <a href="http://Blogvn.org" target="_blank" rel="noopener">Blogvn.org</a> sẽ hướng dẫn chi tiết giúp bạn. Cùng thao tác để tìm ngay thước phim xịn sò từ những người mà mình yêu thích nhé!</p>
